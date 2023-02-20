@@ -4,7 +4,4 @@
 - 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me ... DONT
 
-<!---
-wattapik/wattapik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![hate!](https://media.discordapp.net/attachments/724372836256448623/1065341807942172722/DIEBHITCH.png)
